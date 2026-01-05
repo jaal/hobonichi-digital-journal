@@ -42,32 +42,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -76,32 +76,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -110,32 +110,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -144,32 +144,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -178,32 +178,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -212,32 +212,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -246,32 +246,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -280,32 +280,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -314,32 +314,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -348,32 +348,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -382,32 +382,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -416,32 +416,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -450,32 +450,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -484,32 +484,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -518,32 +518,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -552,32 +552,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -586,32 +586,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -620,32 +620,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -654,32 +654,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -688,32 +688,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -722,32 +722,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -756,32 +756,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -790,32 +790,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -824,32 +824,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -858,32 +858,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -892,32 +892,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -926,32 +926,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -960,32 +960,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -994,32 +994,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -1028,32 +1028,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -1062,32 +1062,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -1098,32 +1098,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -1132,32 +1132,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -1166,32 +1166,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -1200,32 +1200,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -1234,32 +1234,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -1268,32 +1268,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -1302,32 +1302,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -1336,32 +1336,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -1370,32 +1370,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -1404,32 +1404,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -1438,32 +1438,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -1472,32 +1472,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -1506,32 +1506,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -1540,32 +1540,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -1574,32 +1574,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -1608,32 +1608,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -1642,32 +1642,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -1676,32 +1676,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -1710,32 +1710,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -1744,32 +1744,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -1778,32 +1778,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -1812,32 +1812,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -1846,32 +1846,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -1880,32 +1880,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -1914,32 +1914,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -1948,32 +1948,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -1982,32 +1982,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -2016,32 +2016,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -2050,32 +2050,32 @@ Key moments and reflections:
 
 **2026** (N/A)
 
-&nbsp;
+* 
 
 
 **2027** (N/A)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (N/A)
 
-&nbsp;
+* 
 
 
 **2030** (N/A)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -2086,32 +2086,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -2120,32 +2120,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -2154,32 +2154,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -2188,32 +2188,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -2222,32 +2222,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -2256,32 +2256,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -2290,32 +2290,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -2324,32 +2324,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -2358,32 +2358,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -2392,32 +2392,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -2426,32 +2426,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -2460,32 +2460,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -2494,32 +2494,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -2528,32 +2528,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -2562,32 +2562,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -2596,32 +2596,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -2630,32 +2630,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -2664,32 +2664,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -2698,32 +2698,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -2732,32 +2732,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -2766,32 +2766,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -2800,32 +2800,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -2834,32 +2834,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -2868,32 +2868,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -2902,32 +2902,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -2936,32 +2936,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -2970,32 +2970,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3004,32 +3004,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3038,32 +3038,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3072,32 +3072,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3106,32 +3106,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3142,32 +3142,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3176,32 +3176,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3210,32 +3210,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3244,32 +3244,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3278,32 +3278,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3312,32 +3312,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3346,32 +3346,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3380,32 +3380,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3414,32 +3414,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3448,32 +3448,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3482,32 +3482,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3516,32 +3516,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3550,32 +3550,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3584,32 +3584,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3618,32 +3618,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3652,32 +3652,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3686,32 +3686,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3720,32 +3720,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3754,32 +3754,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3788,32 +3788,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3822,32 +3822,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3856,32 +3856,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3890,32 +3890,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3924,32 +3924,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3958,32 +3958,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -3992,32 +3992,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -4026,32 +4026,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -4060,32 +4060,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -4094,32 +4094,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -4128,32 +4128,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -4164,32 +4164,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -4198,32 +4198,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -4232,32 +4232,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -4266,32 +4266,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -4300,32 +4300,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -4334,32 +4334,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -4368,32 +4368,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -4402,32 +4402,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -4436,32 +4436,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -4470,32 +4470,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -4504,32 +4504,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -4538,32 +4538,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -4572,32 +4572,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -4606,32 +4606,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -4640,32 +4640,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -4674,32 +4674,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -4708,32 +4708,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -4742,32 +4742,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -4776,32 +4776,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -4810,32 +4810,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -4844,32 +4844,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -4878,32 +4878,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -4912,32 +4912,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -4946,32 +4946,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -4980,32 +4980,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -5014,32 +5014,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -5048,32 +5048,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -5082,32 +5082,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -5116,32 +5116,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -5150,32 +5150,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -5184,32 +5184,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -5220,32 +5220,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -5254,32 +5254,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -5288,32 +5288,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -5322,32 +5322,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -5356,32 +5356,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -5390,32 +5390,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -5424,32 +5424,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -5458,32 +5458,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -5492,32 +5492,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -5526,32 +5526,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -5560,32 +5560,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -5594,32 +5594,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -5628,32 +5628,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -5662,32 +5662,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -5696,32 +5696,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -5730,32 +5730,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -5764,32 +5764,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -5798,32 +5798,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -5832,32 +5832,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -5866,32 +5866,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -5900,32 +5900,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -5934,32 +5934,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -5968,32 +5968,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6002,32 +6002,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6036,32 +6036,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6070,32 +6070,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6104,32 +6104,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6138,32 +6138,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6172,32 +6172,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6206,32 +6206,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6242,32 +6242,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6276,32 +6276,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6310,32 +6310,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6344,32 +6344,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6378,32 +6378,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6412,32 +6412,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6446,32 +6446,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6480,32 +6480,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6514,32 +6514,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6548,32 +6548,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6582,32 +6582,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6616,32 +6616,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6650,32 +6650,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6684,32 +6684,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6718,32 +6718,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6752,32 +6752,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6786,32 +6786,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6820,32 +6820,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6854,32 +6854,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6888,32 +6888,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6922,32 +6922,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6956,32 +6956,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -6990,32 +6990,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -7024,32 +7024,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -7058,32 +7058,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -7092,32 +7092,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -7126,32 +7126,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -7160,32 +7160,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -7194,32 +7194,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -7228,32 +7228,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -7262,32 +7262,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -7298,32 +7298,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -7332,32 +7332,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -7366,32 +7366,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -7400,32 +7400,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -7434,32 +7434,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -7468,32 +7468,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -7502,32 +7502,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -7536,32 +7536,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -7570,32 +7570,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -7604,32 +7604,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -7638,32 +7638,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -7672,32 +7672,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -7706,32 +7706,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -7740,32 +7740,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -7774,32 +7774,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -7808,32 +7808,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -7842,32 +7842,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -7876,32 +7876,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -7910,32 +7910,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -7944,32 +7944,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -7978,32 +7978,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -8012,32 +8012,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -8046,32 +8046,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -8080,32 +8080,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -8114,32 +8114,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -8148,32 +8148,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -8182,32 +8182,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -8216,32 +8216,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -8250,32 +8250,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -8284,32 +8284,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -8318,32 +8318,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -8354,32 +8354,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -8388,32 +8388,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -8422,32 +8422,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -8456,32 +8456,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -8490,32 +8490,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -8524,32 +8524,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -8558,32 +8558,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -8592,32 +8592,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -8626,32 +8626,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -8660,32 +8660,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -8694,32 +8694,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -8728,32 +8728,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -8762,32 +8762,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -8796,32 +8796,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -8830,32 +8830,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -8864,32 +8864,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -8898,32 +8898,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -8932,32 +8932,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -8966,32 +8966,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9000,32 +9000,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9034,32 +9034,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9068,32 +9068,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9102,32 +9102,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9136,32 +9136,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9170,32 +9170,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9204,32 +9204,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9238,32 +9238,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9272,32 +9272,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9306,32 +9306,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9340,32 +9340,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9376,32 +9376,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9410,32 +9410,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9444,32 +9444,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9478,32 +9478,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9512,32 +9512,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9546,32 +9546,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9580,32 +9580,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9614,32 +9614,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9648,32 +9648,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9682,32 +9682,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9716,32 +9716,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9750,32 +9750,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9784,32 +9784,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9818,32 +9818,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9852,32 +9852,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9886,32 +9886,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9920,32 +9920,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9954,32 +9954,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -9988,32 +9988,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -10022,32 +10022,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -10056,32 +10056,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -10090,32 +10090,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -10124,32 +10124,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -10158,32 +10158,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -10192,32 +10192,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -10226,32 +10226,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -10260,32 +10260,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -10294,32 +10294,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -10328,32 +10328,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -10362,32 +10362,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -10396,32 +10396,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -10432,32 +10432,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -10466,32 +10466,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -10500,32 +10500,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -10534,32 +10534,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -10568,32 +10568,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -10602,32 +10602,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -10636,32 +10636,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -10670,32 +10670,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -10704,32 +10704,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -10738,32 +10738,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -10772,32 +10772,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -10806,32 +10806,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -10840,32 +10840,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -10874,32 +10874,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -10908,32 +10908,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -10942,32 +10942,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -10976,32 +10976,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11010,32 +11010,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11044,32 +11044,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11078,32 +11078,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11112,32 +11112,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11146,32 +11146,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11180,32 +11180,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11214,32 +11214,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11248,32 +11248,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11282,32 +11282,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11316,32 +11316,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11350,32 +11350,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11384,32 +11384,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11418,32 +11418,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11454,32 +11454,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11488,32 +11488,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11522,32 +11522,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11556,32 +11556,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11590,32 +11590,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11624,32 +11624,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11658,32 +11658,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11692,32 +11692,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11726,32 +11726,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11760,32 +11760,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11794,32 +11794,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11828,32 +11828,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11862,32 +11862,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11896,32 +11896,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11930,32 +11930,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11964,32 +11964,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -11998,32 +11998,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -12032,32 +12032,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -12066,32 +12066,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -12100,32 +12100,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -12134,32 +12134,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -12168,32 +12168,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -12202,32 +12202,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -12236,32 +12236,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -12270,32 +12270,32 @@ Key moments and reflections:
 
 **2026** (Friday)
 
-&nbsp;
+* 
 
 
 **2027** (Saturday)
 
-&nbsp;
+* 
 
 
 **2028** (Monday)
 
-&nbsp;
+* 
 
 
 **2029** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2030** (Wednesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -12304,32 +12304,32 @@ Key moments and reflections:
 
 **2026** (Saturday)
 
-&nbsp;
+* 
 
 
 **2027** (Sunday)
 
-&nbsp;
+* 
 
 
 **2028** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2029** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2030** (Thursday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -12338,32 +12338,32 @@ Key moments and reflections:
 
 **2026** (Sunday)
 
-&nbsp;
+* 
 
 
 **2027** (Monday)
 
-&nbsp;
+* 
 
 
 **2028** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2029** (Thursday)
 
-&nbsp;
+* 
 
 
 **2030** (Friday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -12372,32 +12372,32 @@ Key moments and reflections:
 
 **2026** (Monday)
 
-&nbsp;
+* 
 
 
 **2027** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2028** (Thursday)
 
-&nbsp;
+* 
 
 
 **2029** (Friday)
 
-&nbsp;
+* 
 
 
 **2030** (Saturday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -12406,32 +12406,32 @@ Key moments and reflections:
 
 **2026** (Tuesday)
 
-&nbsp;
+* 
 
 
 **2027** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2028** (Friday)
 
-&nbsp;
+* 
 
 
 **2029** (Saturday)
 
-&nbsp;
+* 
 
 
 **2030** (Sunday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -12440,32 +12440,32 @@ Key moments and reflections:
 
 **2026** (Wednesday)
 
-&nbsp;
+* 
 
 
 **2027** (Thursday)
 
-&nbsp;
+* 
 
 
 **2028** (Saturday)
 
-&nbsp;
+* 
 
 
 **2029** (Sunday)
 
-&nbsp;
+* 
 
 
 **2030** (Monday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
@@ -12474,32 +12474,32 @@ Key moments and reflections:
 
 **2026** (Thursday)
 
-&nbsp;
+* 
 
 
 **2027** (Friday)
 
-&nbsp;
+* 
 
 
 **2028** (Sunday)
 
-&nbsp;
+* 
 
 
 **2029** (Monday)
 
-&nbsp;
+* 
 
 
 **2030** (Tuesday)
 
-&nbsp;
+* 
 
 
 **Memo**
 
-&nbsp;
+
 
 
 ---
